@@ -1,0 +1,1 @@
+**Hello Thanks For Showing Interest In This New Project that is Being Worked On if you would like to Stay up to date with this project then id Suggest Joining Our Discord and Keeping a eye on the Announcements Channel as that is where Updates for this project is most likely going to be post Thank You! :) **
